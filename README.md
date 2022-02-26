@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Yi @YiLu0259
 - 👀 I’m interested in Human Development and Aging Psychology.
-- 🌱 I’m currently a 1st year Ph.D. student at Cornell. 
+- 🌱 I’m currently a 2nd year Ph.D. student at Cornell. 
 
 
 <!---
